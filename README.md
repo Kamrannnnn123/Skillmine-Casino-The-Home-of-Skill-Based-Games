@@ -1,2 +1,2 @@
 # Skillmine-Casino-The-Home-of-Skill-Based-Games
-Riversweeps Fun sweepstakes software offers a great cashback bonus feature.
+Riversweeps Fun sweepstakes software offers a great cashback bonus feature.With this feature, you can get back up to 25% of your first deposit if you lose money while playing the games. This is a great way to minimize the risk of losing your hard-earned money and maximize your chances of winning big jackpots. The cashback bonus feature is one of the many features that makes Riversweeps Fun an attractive sweepstakes software for players who want to have fun and win real money at the same time.
